@@ -2,7 +2,7 @@
 Five ideas to get 45-55 year old women to lift weights everyday
 
 Welcome!
-Please find all materials to replicate this research and more importantly,
+Please find all of the materials to replicate this research and more importantly,
 to critique it. 
 
 - Sample characteristics
